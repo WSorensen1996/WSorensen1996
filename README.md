@@ -1,1 +1,1 @@
-Welcome to my Github page! Hope you enjoy my work!
+Welcome to my Github page!
